@@ -1,3 +1,2 @@
-- 👋 Hi, I’m @preswick
-
+doing things on the internet
 
